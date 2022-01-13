@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1 books :heart:
+2 knitting
+3 drawing
